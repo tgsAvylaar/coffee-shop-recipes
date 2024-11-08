@@ -14,7 +14,7 @@
 
 ### Step 1
 
-- Brew Breakfast Blend at double strength and pour over ice.
+- Brew Cold Brew at double strength and pour over ice.
 
 ### Step 2
 
